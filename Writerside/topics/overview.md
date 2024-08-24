@@ -34,4 +34,4 @@ As a result I need come with ways to recover quickly and also to keep my mental 
 6. **Music** - I found that music can help me to relax and also to recover my mental health. So I need to listen to music more often especially when I felt bored
 7. **Reading** - I found that reading can help me to relax but can conflict with my meditation so it could be a replacement for studying.
 8. **Alcohol** - I found that quickest to relax is alcohol but it should not be too much so about 1 can of beer or less is enough. But if too little it will not work. So I need to use it wisely. and preferly if I think I will relax for at least 1 hour.
-9. **Food** - 1 Meal a day is too spartan. 3 meal is ideal but 1 large meal and 2 small meal is enough\
+9. **Food** - 1 Meal a day is too spartan. 3 meal is ideal but 1 large meal and 2 small meal is enough
